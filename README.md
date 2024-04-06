@@ -15,6 +15,6 @@ Petition Preparation Pro is designed to offer specialized assistance in drafting
 - **Document Review and Feedback** ✍️: Reviewing documents and incorporating feedback for refinement.
 - **Confidential and Customized Support** 🔒: Tailoring assistance to individual backgrounds and achievements while maintaining confidentiality and discretion.
 
-For more information, visit [Petition Preparation Pro](https://chat.openai.com/g/g-MmcMXymvO-petition-preparation-pro).
+For more information, visit [Petition Preparation Pro](https://chat.openai.com/g/g-MmcMXymvO-petition-preparation-pro). If you have any comments or suggestions, report [here](https://github.com/Veronica0206/GPTs/issues).
 
 
