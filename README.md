@@ -13,6 +13,6 @@ Petition Preparation Pro is designed to offer specialized assistance in drafting
 - **Document Review and Feedback** ✍️: Reviewing documents and incorporating feedback for refinement.
 - **Confidential and Customized Support** 🔒: Tailoring assistance to individual backgrounds and achievements while maintaining confidentiality and discretion.
 
-Contact the email[Vera.metoo03@gmail.com] for more info!
+Contact the email<Vera.Metoo03@gmail.com> for more info!
 
 
